@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nisjo
+- 👀 Things I like and things I don't like ... I don't feel like telling you that
+- 🌱 My dreams for the future ... never really thought about it
+- 💞️ As for my hobbies ... I have a lot of hobbies
+- 📫 Okay your turn!
